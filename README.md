@@ -3,7 +3,7 @@
 
 I like hiking, art, and science.
 
-[Visit my Portfolio](https://sthopwood.weebly.com)
+[Visit my Portfolio](https://sthopwood.com)
 
 
 My public code is free for anyone to use or reference.
