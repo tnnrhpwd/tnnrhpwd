@@ -1,7 +1,7 @@
 # Tnnrhpwd GitHub
 ### Welcome to my page.
 
-I like hiking, art, and science.
+I like science, art, and teamwork.
 
 [Visit my Portfolio](https://sthopwood.com)
 
