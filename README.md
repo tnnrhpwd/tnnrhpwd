@@ -7,7 +7,9 @@ I’m a passionate Manufacturing Engineer who loves science, art, and teamwork. 
 You can contact me through any of the following channels:
 
 Email: steven.t.hopwood@gmail.com
+
 Twitter: @tnnrhpwd
+
 LinkedIn: STHopwood
 
 ## 🌐 Portfolio
