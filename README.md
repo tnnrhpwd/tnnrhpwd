@@ -10,7 +10,9 @@ Email: steven.t.hopwood@gmail.com
 
 Twitter: @tnnrhpwd
 
-LinkedIn: STHopwood
+Instagram: @tnnrhpwd
+
+LinkedIn: @STHopwood
 
 ## 🌐 Portfolio
 To see more of my work and learn more about me, please visit my portfolio website.
